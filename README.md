@@ -1,5 +1,5 @@
 - 👋 Bonjour, c'est @Wyhhh817
-- 👀 Actuellement édutiant en GM4 de l'INSA Rouen
+- 👀 Actuellement édutiant en GM5 de l'INSA Rouen
 - 🌱 
 - 💞️ 
 - 📫
